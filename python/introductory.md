@@ -1,0 +1,4 @@
+[Introductory but Formatted Better](https://notebooksharing.space/view/1f64124a7661e17cce7b4492923f32bbc3c95d41dc40875ff0c0ecd59ac24a96#displayOptions=)
+
+Same link
+[https://notebooksharing.space/view/1f64124a7661e17cce7b4492923f32bbc3c95d41dc40875ff0c0ecd59ac24a96#displayOptions=](https://notebooksharing.space/view/1f64124a7661e17cce7b4492923f32bbc3c95d41dc40875ff0c0ecd59ac24a96#displayOptions=)
